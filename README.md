@@ -12,7 +12,7 @@ Photoshop 2025 is the latest version of Adobe's flagship image editing software,
 
 ## Download
 
-You can download Photoshop 2025 from the following link: [Download Photoshop 2025](https://telegra.ph/How-to-install-Photoshop-for-free-01-18)
+You can download Photoshop 2025 from the following link: [Download Photoshop 2025]()
 
 ## Installation Instructions
 
